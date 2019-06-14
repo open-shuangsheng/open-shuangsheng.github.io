@@ -87,7 +87,7 @@
 
 > 唱起来顺口行不行哇？就您英语好！
 
-![英语大师]（https://i.ibb.co/C1tZstX/Cyxsj1.jpg "英语大师")
+![英语大师](https://i.ibb.co/C1tZstX/Cyxsj1.jpg "英语大师")
 
 ### 过河拆桥
 
