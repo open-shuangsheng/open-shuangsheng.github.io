@@ -1,6 +1,3 @@
-<script type='text/javascript' src='https://www.freevisitorcounters.com/auth.php?id=1b97c7a9ce3cdebc1e8a57c4b3a4503a489c336c'></script>
-<script type="text/javascript" src="https://www.freevisitorcounters.com/en/home/counter/539039/t/7"></script>
-
 # 双笙？
 
 **警告**
